@@ -1,4 +1,4 @@
-![Profile banner](https://i.imgur.com/VNP2tTx.gif)
+![Profile banner](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExYWkwYWFwdDFtamtydmcxOTJnbzh4dXZxcWw0bzZmeDU2bzM2Nm56NiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/wOVI5wW1cSzWfU0rLj/giphy.gif)
 
 ## Introduction
 
